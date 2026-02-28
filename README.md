@@ -1,4 +1,4 @@
-# kotoha – モエチャッカファイア / 弌誠【covered by Kotoha】
+# Kotoha – モエチャッカファイア (Cover)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
